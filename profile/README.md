@@ -1,1 +1,1 @@
-![image](https://media.discordapp.net/attachments/789505880307400748/1145941142597288006/2Q.png?width=450&height=450)
+![image](https://cdn.discordapp.com/attachments/789505880307400748/1145941867494645800/maxresdefault.png)
