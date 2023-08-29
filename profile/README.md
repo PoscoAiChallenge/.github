@@ -1,2 +1,1 @@
-# .github
-readme
+![image](https://media.discordapp.net/attachments/789505880307400748/1145941142597288006/2Q.png?width=450&height=450)
